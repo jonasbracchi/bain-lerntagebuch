@@ -11,6 +11,6 @@ Das anfänglich definierte Ziel war es, mein Verständnis für Bibliotheksinform
 
 Als abschliessendes Beispiel, das sowohl positive als auch negative Seiten hatte, möchte ich erwähnen, dass alle Veranstaltungen online stattfanden. Bei kurzen Sitzungen war das grossartig, da ich gemütlich in Trainer und Pantoffeln teilnehmen und mir den Anfahrtsweg sparen konnte. Bei längeren Sitzungen wurde ich jedoch schnell müde und es war manchmal schwer, den Vorlesungen konzentriert zu folgen. Koffein wurde da zu meinem besten Freund! 
 
-So, das war’s. Ob Triumph oder nicht – eins steht fest: Ich habe viel gelernt, bin ein paar Mal gestolpert und bin trotzdem immer wieder aufgestanden. Und wenn ich jetzt bei IT-Diskussionen zumindest ein paar Blicke des Respekts ernte, dann hat sich der ganze Aufwand doch gelohnt, oder? 
+So, das war’s. Ob Triumph oder nicht – eins steht fest: Ich habe viel gelernt, bin ein paar Mal gestolpert und bin trotzdem immer wieder aufgestanden. Und wenn ich jetzt bei IT-Diskussionen zumindest ein paar Blicke des Respekts ernte, dann hat sich der ganze Aufwand doch gelohnt, oder?
 
  
